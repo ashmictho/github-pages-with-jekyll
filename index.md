@@ -1,3 +1,3 @@
-# Welcome to my blog
+## Ashley M. Thomas | Librarian, Archivist, Historian
 
-I'm glad you are here. I plan to talk about ...
+Hello and welcome.
